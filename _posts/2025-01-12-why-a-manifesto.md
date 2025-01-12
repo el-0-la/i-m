@@ -9,9 +9,9 @@ For this post, my intention is to outline my steps towards creating my manifesto
 
 ---
 <b>why a manifesto?</b>
+---
 
 I think of manifestos as a physical road map of my morality and personal ethics. I get lost and off-track at times and having a manifesto serves as a reminder that I have goals and ideas that I wish to bring to light and reality.  
----
 
 To begin the process of writing a manifesto, it is helpful to consider the following questions and to take some notes as you go along. Personally, I find it much easier to take these notes using a pen and paper—-the idea here is not to make anything pretty, but to get ideas out.
 
@@ -26,6 +26,8 @@ This can be broken down into smaller questions like:
 
 Other questions to consider:
 * Does taking action benefit my commnunity?
+
+It's also worth noting that I don't believe a manifesto needs to last forever and I do think that making revisions and updating it are fine, that said, if you find yourself constantly making changes, it may be worth creating a new manifesto, even if the core intent remains the same.
 
 
 
