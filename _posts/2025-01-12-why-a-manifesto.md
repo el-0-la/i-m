@@ -8,8 +8,9 @@ In it's simplest form, a manifesto is an expression of intent and action.
 For this post, my intention is to outline my steps towards creating my manifesto as well as share why I am writing one.
 
 ---
+
 <b>why a manifesto?</b>
----
+
 
 I think of manifestos as a physical road map of my morality and personal ethics. I get lost and off-track at times and having a manifesto serves as a reminder that I have goals and ideas that I wish to bring to light and reality.  
 
